@@ -2,7 +2,7 @@
 -  I’m interested in data analytics from the business aspect 
 -  I’m currently learning machine learning and data visualization 
 -  I’m looking to collaborate on projects that have need meaning insights from visualising trends and relationshops 
--  How to reach me: joshiprisha00@gmail.com /+12602061123
+-  How to reach me: joshp02@pfw.edu /+12602061123
 -  Pronouns: she/her
 
 
